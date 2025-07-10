@@ -18,4 +18,4 @@ SEO优化在成人内容网站中尤为关键。通过精准的关键词布局�
 
 未来，随着人工智能、大数据及云计算技术的深度融合，成人视频网站将实现更加智能化的内容推荐和用户管理，提升用户体验的同时，进一步保障内容的合规性和安全性，推动行业迈向更加规范和可持续的发展道路。
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link]( https://github.com/pls20250710/riben23519 ）</span>
